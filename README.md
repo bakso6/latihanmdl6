@@ -1,0 +1,1 @@
+# latihanmdl6
